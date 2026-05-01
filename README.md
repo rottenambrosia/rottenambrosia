@@ -1,4 +1,5 @@
--  Hi, I’m @rottenambrosia
+<img width="1161" height="247" alt="image" src="https://github.com/user-attachments/assets/151714e4-fd1a-4c8b-9848-e946f30efbad" />
+-  Hi, I’m Rick (@rottenambrosia)
 -  I’m interested in music, literature and computers
 -  I’m currently learning way more than i can handle
 -  I’m looking to collaborate on heists (see how i didnt mention any video games? that wasn't a mistake)
